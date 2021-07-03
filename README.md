@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @darlavanginkel
+- 👀 I’m interested in truth,fairness and higher learning...
+- 🌱 I’m currently learning that I'm not very knowledgeable in modern technology,and people no matter how close you are to them, are not to be trusted...
+- 💞️ I’m looking to collaborate on the ins and outs of computer to keep myself from harm.
+- 📫 How to reach me ...
+I can be reached through my Gmail account and if anyone knows a different way please let me know....trump 2021dvg@gmail.com.
+darlavanginkel/darlavanginkel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
